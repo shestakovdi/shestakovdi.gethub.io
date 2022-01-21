@@ -1,1 +1,0 @@
-# shestakovdi.gethub.io
